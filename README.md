@@ -1,0 +1,2 @@
+# SHOKKUR_693
+693 SHOKKUR In One Comand 
